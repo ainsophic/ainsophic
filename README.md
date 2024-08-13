@@ -25,7 +25,7 @@ En **Ainsophic**, nos especializamos en cuatro áreas clave:
 Mantente al día con nuestras últimas innovaciones y proyectos. Síguenos en nuestras redes sociales:
 
 - [Sitio Web](https://www.ainsophic.com)
-- [Twitter](https://twitter.com/ainsophic)
+- [Twitter](https://x.com/ainsophic)
 - [Instagram](https://instagram.com/ainsophic)
 - [LinkedIn](https://linkedin.com/company/ainsophic)
 
